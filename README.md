@@ -1,2 +1,2 @@
 # srpunj
-Siddhartha Rudraksha Punj - Section B
+Siddhartha Rudraksha Punj - SPR500 - Section B
